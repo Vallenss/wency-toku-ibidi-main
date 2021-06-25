@@ -1,1 +1,1 @@
-# Bi Zamanlar paylaşılan tokuchi botları botları 🙈
+# Bi Zamanlar paylaşılan tokuchi botları  🙈
